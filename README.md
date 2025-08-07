@@ -34,7 +34,7 @@ I am curious wanderer, researching across and beyond traditional boundaries:
 All believe that **research is a journey** —  
 > a digital-age quest to understand the mind, the self, and society.  
 
-We are **nomads** — seeking, exploring, and building across disciplines.
+We all are **nomads** : seeking, exploring, and building across disciplines.
 
 ---
 
